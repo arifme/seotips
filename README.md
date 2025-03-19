@@ -1,0 +1,2 @@
+# seotips
+seo.co.sc
